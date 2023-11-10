@@ -8,5 +8,3 @@ az ételekről, amelyek segíthetnek az izomnövekedésben:
 6. Zöldségek és gyümölcsök: Ezek tápanyagokban gazdag élelmiszerek, amelyek segítik az egészséges emésztést és a szervezet megfelelő működését.
 7. Diófélék és magvak: A mandula, dió, mogyoró és tökmag kiváló forrásai az egészséges zsíroknak és fehérjéknek. Továbbá tartalmaznak fontos ásványi anyagokat, mint például magnéziumot.
 Az étrendkiegészítőknek számos előnyük lehet az egészség szempontjából. Például segíthetnek pótolni azokat az anyagokat, amelyek hiányoznak a táplálkozásunkból vagy amelyeknek megnövekedett szükséglete lehet bizonyos állapotokban (például terhesség alatt). Emellett segíthetnek támogatni az immunrendszert, javítani a bőr és haj állapotát, támogatni az izom- és csontrendszer egészségét, valamint elősegíteni a fogyást vagy súlygyarapodást.
-
-Az étrendkiegészítők használata azonban nem helyettesítheti a megfelelő táplálkozást és életmódot. Fontos megjegyezni, hogy nem minden étrendkiegészítő bizonyítottan hatékony vagy biztonságos. Sok esetben a hatásosságukról és biztonságukról nem áll rendelkezésre elegendő tudományos bizonyíték. 
